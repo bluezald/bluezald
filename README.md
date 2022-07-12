@@ -11,3 +11,6 @@ I approach my work in the IT industry with a sense of quality. Strives to create
 ## 📫 How to reach me:
 - You can reach me professionally here:
 - or at my [LinkedIn](https://www.linkedin.com/in/vincentbacalso/) 💬
+
+## 💰Support me:
+- You can support me through: https://liberapay.com/bluezald/
